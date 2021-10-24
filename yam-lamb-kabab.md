@@ -1,10 +1,10 @@
 # Yam and lamb kababs
 
 ## Ingredients
-1lb ground lamb
-1lb ground beef, or just more lamb
 1 medium sized yam
 1 yellow onion
+1lb ground lamb
+1lb ground beef, or just more lamb
 4tbsp whole milk yogurt
 2-4 hot peppers or to taste
 2 tbsp garam masala powder
@@ -12,6 +12,7 @@
 1 tsp red chilli powder
 2 tsp salt
 2 tbsp ginger-garlic paste
+Oil for frying
 
 ## Method
 
