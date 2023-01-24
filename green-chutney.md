@@ -14,5 +14,5 @@
 
 1. Dump all ingredients in a food processor or blender and grind to a smooth
    paste.
-   
+
 Add more salt, lime juice, hot pepper and oil to taste.
