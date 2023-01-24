@@ -9,7 +9,7 @@
 * 1 bunch of radish. Get daikon radish if you can.
 * 1-2 big knobs of ginger
 * 1 head of garlic
-* 1 pear or apple. Get Asian pear if you can.
+* 2 pears or apples. Get Asian pear if you can. Can also do 1 pear and 1 apple.
 * 1/2 cup of Gochugaru, Korean red chilli flakes
 * (optional) 1/4 cup fish sauce
 * salt
@@ -17,8 +17,8 @@
 ## Method
 
 1. Shred cabbage, julienne carrots, cube radish, chop scallion into 1 inch
-   pieces.
-2. Blend ginger, garlic, pear/apple and fish sauce (if using) into a paste using
+   pieces, slice 1 pear or apple (reserve other fruit for paste) .
+2. Blend ginger, garlic, other pear/apple and fish sauce (if using) into a paste using
    a food processor.
 3. Put a big bowl on a kitchen scale. Dump in vegetables and paste. Add 2% salt
    by weight, and the gochugaru.
