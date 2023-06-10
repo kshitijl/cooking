@@ -1,21 +1,21 @@
 # Kerala Fish Curry
 
 ## Ingredients
-2 shallot
-3 cloves garlic
-1 inch ginger
-1/3 unripe mango (ambi)
-coconut oil
-1tsp fenugreek seed
-1tsp mustard seed
-(optional) whole red dry chilli peppers
-around 10-15 curry leaves
-1tsp turmeric
-2tsp chilli powder
-2lb of any white fish
-(optional) fresh green chilli peppers
-2 cup coconut milk
-1 tomato
+* 2 shallot
+* 3 cloves garlic
+* 1 inch ginger
+* 1/3 unripe mango (ambi)
+* coconut oil
+* 1tsp fenugreek seed
+* 1tsp mustard seed
+* (optional) whole red dry chilli peppers
+* around 10-15 curry leaves
+* 1tsp turmeric
+* 2tsp chilli powder
+* 2lb of any white fish
+* (optional) fresh green chilli peppers
+* 2 cup coconut milk
+* 1 tomato
 
 ## Method
 
